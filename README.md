@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-You can call me **Dharma**, i allways want to learn new things everyday, and if i dont i wont sleep until i get new things to learn - inspirated by @deafrizal
+call me **Dharma**, i allways want to learn new things everyday, and if i dont i wont sleep until i get new things to learn - inspirated by @deafrizal
