@@ -5,4 +5,5 @@ call me **Dharma**, i allways want to learn new things everyday, and if i dont i
 ## I'm the developer of 
 
 - https://tuwagabalitrip.com/
-- https://flexless.shop/ 
+- https://flexless.shop/
+- tuwagabalitrip.com
