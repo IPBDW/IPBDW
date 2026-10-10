@@ -6,4 +6,3 @@ call me **Dharma**, i allways want to learn new things everyday, and if i dont i
 
 - https://tuwagabalitrip.com/
 - https://flexless.shop/
-- tuwagabalitrip.com
